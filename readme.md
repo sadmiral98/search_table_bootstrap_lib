@@ -1,0 +1,1 @@
+Search table for Bootstraps Table
